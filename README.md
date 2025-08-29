@@ -7,4 +7,4 @@ My github username is:
 
 [Diegotron456]
 
-BL-MSCH-C220
+I have installed all the software.
